@@ -1,0 +1,1 @@
+# FCaptcha-Privacy-Policy
